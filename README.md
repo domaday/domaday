@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @domaday
+- 👀 I’m interested in learning more about coding and cool projects across the internet
+- 🌱 not currently learning anything at the moment but trying to start!
